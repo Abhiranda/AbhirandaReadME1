@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **abhiranda21@gmail.com**
 
-- ⚡ Fun fact **There is no place like 127.0.0.1**
+- ⚡ Real fact **There is no place like 127.0.0.1**
 
 <img align="center" height="200" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbTB2OTc0YWZ0b3lkaDdrZWdwM25qa21jcjVvZnhucnVtazJkaG5wMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/zyFcsWHX2fdpyb5SBi/giphy-downsized.gif"  />
 
